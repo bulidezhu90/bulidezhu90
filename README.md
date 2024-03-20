@@ -2,7 +2,7 @@
 - 👀 I’m interested in Python
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me bulide.zhu@gmail.com wechat zyd365491379
+- 📫 How to reach me bulide.zhu@gmail.com wechat zyd365491379  Phone NO. +86 13774693661
 - 😄 
 - ⚡
 
